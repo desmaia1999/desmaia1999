@@ -4,7 +4,7 @@
 
 **"Be something greater, go make a legacy" ✨**
 
-- 🔭 Professora | Dermoconsultora
-- 💬 @_desmaia
-- 📫 Registro-SP
-- ⚡ Torcedora do Santos FC
+- 👩🏻‍🔬🔭 Professora | Dermoconsultora
+- 📷 @_desmaia
+- 📍 Registro-SP
+- ⚽️ Torcedora do Santos FC 🖤
